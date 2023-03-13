@@ -9,5 +9,5 @@ My name is Maribick Postanes from the Philippines. As a Petroleum Engineer, I'm 
   - 2016 - 2021
 * Western Mindanao State University
   - Location: Normal Road, Baliwasan, Zamboanga City, Philippines
-  - Bachelor of Science in Biology
+  - Degree: Bachelor of Science in Biology
   - 2011 - 2015
